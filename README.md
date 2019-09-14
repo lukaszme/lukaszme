@@ -1,0 +1,2 @@
+# lukaszme
+Jakiś typ
